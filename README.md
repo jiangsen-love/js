@@ -1,4 +1,0 @@
-# js
-wdcehvhreiwev
-dfcedfverv
-dfedvervrrevrevre
